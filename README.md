@@ -6,7 +6,7 @@ So my idea of git became by the evolution of cinema & VFX: VR
 
 By this idea, and some other technologies I saw that I could relate, became to my mind to develop tech, starting from software and, who knows, probably some day in hardware.
 
-BTW I love to design, so start developing my own tech (even for/with comunnities) sounds freacking amazing. 
+BTW I love to design, so start developing my own tech (even for/with communities) sounds freaking amazing. 
 
 ### And what about you and your "coolness"?
 Well, I talk shit to my proper chicks just to feel cool nowadays. 
